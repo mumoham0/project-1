@@ -1,2 +1,2 @@
 # project-1
-I am Uzman, studung at ECU in Jonndalup
+I am Uzman, studying at ECU in Jonndalup
